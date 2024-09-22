@@ -1,0 +1,1 @@
+# Meta-analisis-Alkitab-dalam-pembentukan-karakter-IAKN-toraja
